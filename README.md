@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m  full stack java developer i create website nd applications AI tools Analytical, motivated and hard-working java Developer with over 3 years of experience designing, debugging and troubleshooting applications 
+🔭 I’m  full stack java developer i create website nd applications AI tools Analytical, motivated and hard-working java Developer with over 4 years of experience designing, debugging and troubleshooting applications 
 
 
 ## 🌐 Socials:
